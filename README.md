@@ -6,5 +6,5 @@
 - 📫 How to reach me:
 #### Email: serhii.shestialtynov@gmail.com
 ###### [Telegram](t.me/s_shestialtynov)   
-###### [facebook.com/shestialtynov](https://www.facebook.com/shestialtynov)
-###### [linkedin.com/in/s-shestialtynov](linkedin.com/in/s-shestialtynov)
+###### [Facebook](https://www.facebook.com/shestialtynov)
+###### [Linkedin](linkedin.com/in/s-shestialtynov)
